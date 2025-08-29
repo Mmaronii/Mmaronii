@@ -1,8 +1,8 @@
 ## Olá! Eu sou o Miguel Maroni
 
-- 🔞 Tenho 18 anos.
+- 🔞 Tenho 19 anos.
 - 💼 Não estou trabalhando nomomento.
-- 🧑‍🏫 Estou cursando Gestão empresarial.
+- 🪖Militar EB.
 - 😁 Sempre aprendendo coisas novas.
 - 🌱 Aprendendo a programar.
 
